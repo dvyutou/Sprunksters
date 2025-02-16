@@ -6,7 +6,7 @@
 **?? Ignite Your Creativity with Sprunksters**  
 Dive into the official GitHub repository for **Sprunksters**—the electrifying fan-made mod that reimagines the Incredibox experience with unbridled chaos and endless possibilities. Born from the beloved Sprunki mod, Sprunksters transforms music creation into a thrilling adventure of unexpected beats, quirky characters, and hidden surprises.  
 
-**[Play Now](https://sprunki1996.com/sprunksters)** | **[Community Hub](https://forum.sprunksters.org)** | **[Contribute](https://github.com/sprunksters)**  
+**[Play Now](https://sprunki1996.com/sprunksters)** 
 
 ---
 
