@@ -1,13 +1,13 @@
-**Sprunksters: Where Musical Chaos Meets Creativity**  
-*A Vibrant Fan-Made Mod for Incredibox Enthusiasts*  
-
+<h1>Sprunksters Mod Play Online for Free Update 2025</h1>
 ---
 
 **?? Ignite Your Creativity with Sprunksters**  
 Dive into the official GitHub repository for **Sprunksters**—the electrifying fan-made mod that reimagines the Incredibox experience with unbridled chaos and endless possibilities. Born from the beloved Sprunki mod, Sprunksters transforms music creation into a thrilling adventure of unexpected beats, quirky characters, and hidden surprises.  
 
-**[Play Now](https://sprunki1996.com/sprunksters)** 
-
+<p dir="auto">???? Click to play，1st Version: <a href="https://sprunki1996.com/sprunksters" title="Sprunki sprunksters" rel="nofollow">Sprunki sprunksters</a></p>
+<p dir="auto">???? Click to play，1st Version: <a href="https://sprunki1996.com/sprunksters" title="Sprunki sprunksters" rel="nofollow">Sprunki sprunksters</a></p>
+<p dir="auto">???? Click to play，1st Version: <a href="https://sprunki1996.com/sprunksters" title="Sprunki sprunksters" rel="nofollow">Sprunki sprunksters</a></p>
+<p dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href="https://raw.githubusercontent.com/sprunkiscrunkly/sprunki-1996/refs/heads/main/sprunki-1996.png"><img src="https://raw.githubusercontent.com/sprunkiscrunkly/sprunki-1996/refs/heads/main/sprunki-1996.png" alt="Sprunki 1996" title="Sprunki 1996" style="max-width: 100%;"></a></p>
 ---
 
 ### **Why Sprunksters?**  
