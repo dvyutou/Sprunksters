@@ -25,7 +25,7 @@ Sprunksters isn’t just a mod—it’s a rebellion against predictable rhythms.
 ---
 
 ### **? Quickstart Guide**  
-1. **Launch**: Visit [Sprunksters.org](https://sprunki1996.com/sprunksters) and drag characters onto the stage.  
+1. **Launch**: Visit [sprunki1996.com](https://sprunki1996.com/sprunksters) and drag characters onto the stage.  
 2. **Experiment**: Mix contrasting sounds—the more chaotic, the better!  
 3. **Discover**: Trigger hidden animations by combining specific characters.  
 4. **Share**: Export your track with a unique code and dominate the leaderboards.  
